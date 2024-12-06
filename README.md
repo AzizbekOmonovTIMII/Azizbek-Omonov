@@ -1,0 +1,2 @@
+# Azizbek-Omonov
+Men haqimda 
